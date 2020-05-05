@@ -17,3 +17,5 @@
 最后附上我的帅照
 ---------------------
 ![我的照片](https://tse1-mm.cn.bing.net/th/id/OIP.dROrOxh5mLf-hUmDgjcsLAHaK_?w=201&h=299&c=7&o=5&dpr=1.25&pid=1.7)
+
+### 以上纯属虚构 如有雷同 纯属巧合
